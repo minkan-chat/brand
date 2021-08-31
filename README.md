@@ -1,1 +1,1 @@
-# brand
+# The Minkan brand
